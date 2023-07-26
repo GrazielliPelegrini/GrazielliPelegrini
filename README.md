@@ -11,6 +11,5 @@ Para contato comigo
 
 pelegrinigrazielli@gmail.com
 
-@eisoool
 
 ![](https://media.tenor.com/zJvANfC7hWgAAAAC/rock-lee.gif)
